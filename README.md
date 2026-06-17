@@ -1,4 +1,4 @@
-# Tere! 👋 Mina olen [Kiira Ottoson]
+# Tere! 👋 Mina olen Kiira Ottoson
  
 ## 🎯 Andmeanalüütiku Karjääri Algus
  
